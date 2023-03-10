@@ -15,3 +15,5 @@
 - 3 cups peeled carrots
 
 - Buttercream frosting optional
+
+Makes 22-24 cupcakes. Cut ingredients in half to make 12, but add 1 extra egg for moist cake (so 3 eggs total instead of 2), and really pay attention to taste of batter for spices.
