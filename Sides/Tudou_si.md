@@ -11,3 +11,7 @@
 - 0.25 tsp white pepper
 - 1.5 tsp salt
 - 1 tsp chili oil (optional)
+
+
+
+https://healthynibblesandbits.com/chinese-stir-fried-shredded-potatoes-tudou-si/
