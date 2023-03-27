@@ -7,3 +7,7 @@
 - 1.5 tsp sugar
 - 0.5 to 1 tsp red pepper flakes
 - as much cucumber as you feel like it
+
+
+
+https://healthynibblesandbits.com/chinese-garlic-cucumber-salad/
