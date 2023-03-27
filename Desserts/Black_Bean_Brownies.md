@@ -9,3 +9,6 @@
 - 2 tsp pure vanilla extract
 - 0.5 tsp baking powder
 - 0.5 cup chocolate chips
+
+
+https://chocolatecoveredkatie.com/no-flour-black-bean-brownies/
