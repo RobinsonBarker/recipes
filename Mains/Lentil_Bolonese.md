@@ -11,3 +11,7 @@
 - 1 cup red lentils
 - 0.25 cup walnuts
 - 1 small can crushed tomatos
+
+
+
+https://rainbowplantlife.com/10-ingredient-vegan-red-lentil-bolognese/#wprm-recipe-container-5570
