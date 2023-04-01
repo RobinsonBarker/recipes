@@ -6,3 +6,7 @@
 - 2 tbsp lemon juice
 - 3g salt
 - 1 tbsp avocado oil
+
+
+
+https://minimalistbaker.com/best-ever-5-minute-microwave-hummus/
